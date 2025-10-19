@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔸I am pursuing my bachelor's degree at PES College of Engineering , Mandya<br>🌱I am  currently leaning web development<br>📫 Reach out to me at rakshithabr012@gmail.com
+🔸I am pursuing my bachelor's degree at PES College of Engineering , Mandya<br>🌱I am  currently leaning web development<br>electrical and electronics student <br>passionate about coding and solving real world problems📫 Reach out to me at rakshithabr012@gmail.com
 
 
 ## 🌐 Socials:
